@@ -1,0 +1,1 @@
+I am a Software Information Technologist but my interests are not limited to Information Technology. I tried out many things in this area so it is my official profile but I am always ready to learn new things.
